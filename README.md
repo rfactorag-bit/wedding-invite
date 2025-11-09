@@ -1,1 +1,1 @@
-# wedding-invite
+# Our Wedding Invitation
